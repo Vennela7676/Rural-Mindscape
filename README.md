@@ -13,6 +13,6 @@ personalized guidance and treatment for their mental health concerns.
 - [@vennela7676
   @nikitha334]
 (https://www.github.com/vennela7676)
-(https://www.github.com/nikitha334)
+(https://www.github.com/Nikitha334)
 
 
